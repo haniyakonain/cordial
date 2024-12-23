@@ -130,4 +130,4 @@ Follow us on social media for the latest updates!
 
 ---
 
-Made with ❤️ for all jewelry lovers!
+Made with ❤️ by **Haniya Konain**.
